@@ -1,16 +1,13 @@
-## Hi there 👋
+<p align="center"> <img src="https://i.ibb.co/3YvCGjP/IMG-6860.gif">
 
-<!--
-**killertill/killertill** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center"> <img src="https://i.ibb.co/7zpDkS9/Untitled146-20241027125659.png">
 
-Here are some ideas to get you started:
+<p align="center"> 
+eli, lance or caelus . . . *ೃ༄
+. . . till's number 1 fan ! 
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center"> <img src="https://i.ibb.co/X81nx6k/Untitled148-20240401200348.png">
+
+<p align="center"> <img src="https://i.ibb.co/3YvCGjP/IMG-6860.gif">
+
